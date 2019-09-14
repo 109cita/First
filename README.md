@@ -1,6 +1,7 @@
 # First
 I think that I might be starting to get this program.  
 It's been a bit of a challenge so far.
+
 I am rather older than your average college student, I would say.
 My first grandson is old enough for college, if that is any sign.
 I was born and raised in Connecticut, but married and traveled around since my husband was a carreer Air Force man.
